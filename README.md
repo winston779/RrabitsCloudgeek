@@ -1,6 +1,6 @@
 # Rrabits Cloudgeek官网地址
 
-最新地址：[rrabits.com](https://user.rrabits.moe/index.php#/register?code=1Pc3K3p2)
+最新地址：[rrabits.com](https://lkcrzdme4128儿.晨曦微光.com/index.php#/register?code=1Pc3K3p2)
 
 ## Rrabits Cloudgeek介绍
 
