@@ -12,11 +12,13 @@ Rrabits Cloudgeek机场，国内中转延迟极低，移动电信联通接入，
 
 ## Rrabits Cloudgeek优惠码
 
-代码：rrabits555 折扣50%
+五一劳动节活动
 
-有效期截至2025.1.31
+全场优惠 30%
 
-## Rrabits Cloudgeek价格
+代码：51ld
+
+时间：2025/04/21 00:00 ~ 2025/05/10 23:59
 
 |套餐|TINY 128GB|STARTER 312GB|MINI 512GB|MICRO 720GB|MEDIUM 1TB|LARGE 2TB|PREMIUM 独享|
 |----|----|----|----|----|----|----|----|
